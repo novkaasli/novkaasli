@@ -2,7 +2,7 @@
 - 👀 I’m interested in making website
 - 🌱 I’m currently learning js
 - 💞️ I’m looking to collaborate on my small project
-- 📫 How to reach me @novkaasli on instagram
+- 📫 How to reach me @novka.asli on instagram
 - 😄 Pronouns: TF is pronouns????
 - ⚡ Fun fact: i want to make a new friend
 
